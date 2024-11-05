@@ -1,5 +1,5 @@
 hi- 👋hi my i am hr580      
-I am intrested in buioding a application for my hr online business working from home and keeping my customers and data safe
+I am intrested in building a application for my hr online business working from home and keeping my customers and data safe
 I am currently learning about github and google workspace and how it really works and setting up my business and also working on marketing anmd making 
 $ online.
 I am looking to collaborate with others that are looking for hr jobs also passion in working passion to dedicate in the world of Human resourcs from home. 
